@@ -9,3 +9,4 @@
 | Clase 3 | 2 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/CWvfCnmtW69t37Dp6-vSvj1KHUpD1ONz7YT77R2z3nXj-oaQy5ljN6Hdv-J9ovOa.eIN0SJSOj6kC7hbD?startTime=1788397731000) | `$6KhDFbp` |
 | Clase 4 | 9 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/ufidclZL_hd2gzBDEyQot5rzRwQtVNyWbs1rzm3-rszgpeDFevba0LYvuk0R-usT.Fm8gV9N3CdfLI2Rw?startTime=1789002518000) | `#4QBwNH!` |
 | Clase 5 | 14 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/RZfatFamNUjK91bOUj8OkJPZzInmpD0x5N17Z2KJbEwyxWuiwORhkqCLdtELpT6T.YQFniZS8zLKl0kF-?startTime=1789434514000) | `ev6bHV.g` |
+| Clase 7 | 21 de septiembre | [Ver Grabación](https://drive.google.com/file/d/17hapnQ3XhRs2c7838FtkGgUkt3DCsBwY/view?usp=drive_link) |  |
