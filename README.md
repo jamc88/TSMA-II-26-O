@@ -9,6 +9,7 @@
 | Clase 3 | 2 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/CWvfCnmtW69t37Dp6-vSvj1KHUpD1ONz7YT77R2z3nXj-oaQy5ljN6Hdv-J9ovOa.eIN0SJSOj6kC7hbD?startTime=1788397731000) | `$6KhDFbp` |
 | Clase 4 | 9 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/ufidclZL_hd2gzBDEyQot5rzRwQtVNyWbs1rzm3-rszgpeDFevba0LYvuk0R-usT.Fm8gV9N3CdfLI2Rw?startTime=1789002518000) | `#4QBwNH!` |
 | Clase 5 | 14 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/RZfatFamNUjK91bOUj8OkJPZzInmpD0x5N17Z2KJbEwyxWuiwORhkqCLdtELpT6T.YQFniZS8zLKl0kF-?startTime=1789434514000) | `ev6bHV.g` |
+| Clase 6 | 18 de septiembre | presencial |  |
 | Clase 7 | 21 de septiembre | [Ver Grabación](https://drive.google.com/file/d/17hapnQ3XhRs2c7838FtkGgUkt3DCsBwY/view?usp=drive_link) |  |
 | Clase 8 (p1) | 23 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/PjIMJH7kopfRTG6TzmXii8lPLvhbI5X9GFzp2LaMEZD1LYVbnF21pybegJnekMZb.fXYGxMfxiiED3bV0?startTime=1790212562000) | `&WM!e#S9` |
 | Clase 8 (p2) | 23 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/PjIMJH7kopfRTG6TzmXii8lPLvhbI5X9GFzp2LaMEZD1LYVbnF21pybegJnekMZb.fXYGxMfxiiED3bV0?startTime=1790215121000) | `&WM!e#S9` |
