@@ -13,3 +13,4 @@
 | Clase 7 | 21 de septiembre | [Ver Grabación](https://drive.google.com/file/d/17hapnQ3XhRs2c7838FtkGgUkt3DCsBwY/view?usp=drive_link) |  |
 | Clase 8 (p1) | 23 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/PjIMJH7kopfRTG6TzmXii8lPLvhbI5X9GFzp2LaMEZD1LYVbnF21pybegJnekMZb.fXYGxMfxiiED3bV0?startTime=1790212562000) | `&WM!e#S9` |
 | Clase 8 (p2) | 23 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/PjIMJH7kopfRTG6TzmXii8lPLvhbI5X9GFzp2LaMEZD1LYVbnF21pybegJnekMZb.fXYGxMfxiiED3bV0?startTime=1790215121000) | `&WM!e#S9` |
+| Clase 9 | 28 de septiembre | [Ver Grabación](https://uammx.zoom.us/rec/share/7Yb2f9uPg2XMOG4lOjJ5rVvZfA0tR3Zo25D0b75one5y85SLEWP3OJMBHJ_fXoug.jjuuulY5Xz43ydIb?startTime=1790644641000) | `cT=eL3@m` |
